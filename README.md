@@ -48,7 +48,7 @@ Allah gives **‘izzah** (honor, dignity, strength) to whom He wills. No matter 
 
 ---
 
-### 2. Watu Zillu Mantasha – *"You Humiliate Whom You Will"*
+### 2. [Watu Zillu Mantasha](https://sites.google.com/view/watu-izzu-mantasha-watu-zill/) – *"You Humiliate Whom You Will"*
 
 Likewise, Allah can bring down even the mightiest. Power and pride don’t last if they’re not used with humility and gratitude.
 
